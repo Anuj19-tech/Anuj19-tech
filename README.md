@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on product development projects 
 - 📫 How to reach me shahanuj2018@gmail.com
 - 😄 Pronouns: Mr
-- ⚡ Fun fact: 
+- ⚡ Fun fact: I still don't know what to order at starbucks
 
 <!---
 Anuj19-tech/Anuj19-tech is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
